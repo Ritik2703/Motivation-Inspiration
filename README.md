@@ -12,6 +12,16 @@ The Most Effective is Laughter.
 ```
 # Secret to Success (Practice)
 
+```
+ करत-करत अभ्यास के, जड़मति होत सुजान।
+रसरी आवत जात तें, सिल पर परत निसान।।
+
+Practice makes a man perfect.
+
+बार-बार नियमित अभ्यास करने से मूर्ख बुद्धि वाला व्यक्ति भी चतुर व समझदार बन सकता है| जैसे कुएं से निरंतर पानी निकालने से रस्सी आने-जाने वाली जगह निशान पड़ जाता है| जब एक पत्थर पर निशान पड़ना संभव है तो नियमित अभ्यास से मनुष्य तो पारंगत हो सकता है | 
+```
+
+
 1. Question- To what extent have you implemented your learnings to practical?
 2. One piece of knowledge if we truly translate it into action in our lives that one gem of knowledge can completely transform our lives that is the power of knowledge when it is translated into action.
 3. Practice is the ladder to mastery, to bridge the gap between knowing an doing.
