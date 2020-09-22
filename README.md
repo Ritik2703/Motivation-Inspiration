@@ -34,6 +34,14 @@ Practice makes a man perfect.
 
 Always be good , do good and feel good. when we practice in these three aspects in our day to day life peace , happiness , success etc all are coming to our feet easily and also progress for future and a get a successful life.
 
+
+# 5 points for happy spiritual life-
+1. Chant Holy Names Daily without a break
+2. Do your every work as service to god(krsna).
+3. Have a full believe or faith in God.
+4. Learn one new thing daily ( best way is to hear 30 minute scriptures and read 30 minute books)
+5. Plan your full day early morning and pray to God, saints, every great power that they help you to achieve your target.
+
 # Count Your Blessings and Not What You are Missing
 
 # Success comes to those who manage their mind, their emotions, attitude, thoughts, ideas, beliefs and values.
@@ -111,5 +119,4 @@ Ask question from you-
 2. What is there to be proud about?
 3. What self-esteem do we have to have? 
 any kind of self-esteem is a lie. It is falsehood. The real self-esteem is to establish ourselves in the Supreme truth that we're the tiny little parts of God, and our utmost interest lies in surrendering & serving Him. With these sentiments, when we destroy the false pride/ego, and become humble, everything falls into place. The more we develop humbleness, the healthier our personality become. Pride complicates our life, whereas being humble, we attract the grace of God.
-
 
