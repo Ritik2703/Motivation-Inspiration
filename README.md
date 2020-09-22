@@ -70,9 +70,46 @@ Difficulties help us grow, yet we run from them.  If we can understand that real
 # Knowledge holds the key to eradicating our ignorance.  We should harbor the attitude of learning at all times - an important tool for our growth!
 
 # Never Suffer in life Understand it
+
+### four golden truth stated by Buddha -
+1. there is suffering in this world.
+2. that suffering has a cause.
+3. the cause of suffering is desire.
+4. if desire is eliminated suffering will be overcome.
+
 ```
+The deer, the elephant, the moth, the fish and the black-bee – these five have died, being tied to one or other of the five senses, viz. sound etc., 
+through their own attachment. What then is in store for man who is attached to all these five.
+
+Katha Upnashid 2.3.14
+
+ When all desires clinging to one’s heart fall off, then a mortal becomes immortal
+(and he) attains Brahman here. 
+
+srimad bhagvatam 7.10.9
+
+O my Lord, when a human being is able to give up all the material desires in his mind, he becomes eligible to possess wealth and opulence like Yours.
+
+The Mahabharata 14.47.8
+
+He who never desires for anything, who despises nothing become eligible, even when dwelling in this world, for assimilation with brahman.
+
+Bhagvad gita 2.71
+
+That person who gives up all material desires and lives free from a sense of greed, proprietorship, and egoism, attains perfect peace.
+
 B.G 2.63-
-attachment and desire are the sources of all mental afflictions. When a desire is unfulfilled, it leads to anger. Anger ---> delusion ---> bewilderment of memory ---> ruin of the intellect ---> failure to discriminate ---> downfall of the soul.
+attachment and desire are the sources of all mental afflictions. When a desire is unfulfilled, it leads to anger. 
+Anger ---> delusion ---> bewilderment of memory ---> ruin of the intellect ---> failure to discriminate ---> downfall of the soul.
 ```
+
+# B.g 5. 11 "The yogis, while giving up attachment, perform actions with their body, senses, mind, and intellect, only for the purpose of self-purification."
+
+# Getting Rid of Your Ego-
+Ask question from you-
+1. Who am I? 
+2. What is there to be proud about?
+3. What self-esteem do we have to have? 
+any kind of self-esteem is a lie. It is falsehood. The real self-esteem is to establish ourselves in the Supreme truth that we're the tiny little parts of God, and our utmost interest lies in surrendering & serving Him. With these sentiments, when we destroy the false pride/ego, and become humble, everything falls into place. The more we develop humbleness, the healthier our personality become. Pride complicates our life, whereas being humble, we attract the grace of God.
 
 
