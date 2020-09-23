@@ -123,7 +123,7 @@ Ask question from you-
 3. What self-esteem do we have to have? 
 any kind of self-esteem is a lie. It is falsehood. The real self-esteem is to establish ourselves in the Supreme truth that we're the tiny little parts of God, and our utmost interest lies in surrendering & serving Him. With these sentiments, when we destroy the false pride/ego, and become humble, everything falls into place. The more we develop humbleness, the healthier our personality become. Pride complicates our life, whereas being humble, we attract the grace of God.
 
-# Getting of Rejections-
+# Getting Rid of Rejections-
 
 ## Believe me your personality only develops in pressure situations or by facing rejection whether it is interviews, life or anything. In my life I only learn the great things after rejection or in pressure situations, try to develop every neagative thing to positive.
 ## Rejection makes us much stronger than we are.
