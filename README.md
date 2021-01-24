@@ -128,3 +128,17 @@ any kind of self-esteem is a lie. It is falsehood. The real self-esteem is to es
 ## Believe me your personality only develops in pressure situations or by facing rejection whether it is interviews, life or anything. In my life I only learn the great things after rejection or in pressure situations, try to develop every neagative thing to positive.
 ## Rejection makes us much stronger than we are.
 ## Take negative situations as a test and remain undisturbed by them.  All adversities are an opportunity to progress in life. 
+
+
+# Movieocohlic -
+
+```
+1. Everybody thinks that dying teaches you something about life, but they're wrong. The only way to learn about life is by living. And I have learned that every moment is your moment. Sometimes the moment are messy, sometimes they're beautiful, or scary, or just plain weird. But they're all yours. Cherish them. Living isn't easy. But if you can manage to look past your own fears and everyone else's expectations, the reward is your life. And in my life?... I was loved.. Hare Krishna.
+
+2. Don’t cry because it’s over, smile because it happened.
+
+
+
+
+
+```
